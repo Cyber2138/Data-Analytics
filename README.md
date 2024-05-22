@@ -1,4 +1,4 @@
-Absolutely, here's an alternative description for your README file:
+
 
 ---
 
